@@ -9,7 +9,7 @@ rafinha07/rafinha07 is a ✨ special ✨ repository because its `README.md` (thi
 You can click the Preview link to take a look at your changes.
 --->
 
-oppa                                        bão? eu sou a rafinha07, hoje vamos aprender um tutorial de construção de uma casa do survival no criativo
+opa                                        bão? eu sou a rafinha07, hoje vamos aprender um tutorial de construção de uma casa do survival no criativo
 entao se vc quer ver, vem comigo *começa uma intro de minecraft*
 quero um oppa!!!!!!!!!!! 👨🍥🍓 
 🦆 ♾️
